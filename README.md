@@ -1,1 +1,1 @@
-# Dolgozat
+# Szoóh Péter Patrik
